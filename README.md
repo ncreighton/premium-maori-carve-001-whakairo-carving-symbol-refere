@@ -1,0 +1,2 @@
+# premium-maori-carve-001-whakairo-carving-symbol-refere
+You’ve spent hours studying whakairo patterns, but without a centralised hub, the meanings blur together—wasting time you could spend carving.  The Whakairo Carving Symbol Reference Hub transforms scattered notes into one searchable, culturally respectful database. It’s the fastest way to look up symbols, record their stories, and keep your learnin
